@@ -1,0 +1,9 @@
+Download Link: https://assignmentchef.com/product/solved-solvedcareer-options-and-positions-in-accounting
+<br>
+Write a one to two (1-2) page paper in which you:
+
+1.Describe at least two (2) career options someone with an accounting education can pursue. Be sure to reference sources such as the Bureau of Labor Statistics and the American Institute of Certified Public Accountants.2.Describe one (1) researched accounting position, and explain the essential skills that would make a candidate successful in the position. Articulate the primary manner in which the researched accounting positions could add value to the company seeking candidates.3.Use at least two (2) quality academic resources in this assignment. Note: Wikipedia and other Websites do not qualify as academic resources.Your assignment must follow these formatting requirements:
+
+•Be typed, double spaced, using Times New Roman font (size 12), with one-inch margins on all sides; citations and references must follow APA or school-specific format. Check with your professor for any additional instructions.•Include a cover page containing the title of the assignment, the student’s name, the professor’s name, the course title, and the date. The cover page and the reference page are not included in the required assignment page length.The specific course learning outcomes associated with this assignment are:
+
+•Identify and explain the fundamental concepts and principles in accounting, the components of the accounting equation, the primary financial accounting equation, and financial statements and reports.•Use technology and information resources to research issues in financial accounting.•Write clearly and concisely about financial accounting using proper writing mechanics.Grading for this assignment will be based on answer quality, logic / organization of the paper, and language and writing skills, using the following rubric
